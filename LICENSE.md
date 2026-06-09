@@ -1,4 +1,4 @@
-# 
+# Instantâneo WizTree plugins para Mac OS | Avançado WizTree plugins para PC Windows. Com gerenciamento de energia e otimizacao de resfriamento — otimizado para máximo desempenho em cada plataforma.
 
 
 
